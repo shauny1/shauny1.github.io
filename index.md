@@ -1,3 +1,3 @@
-# Zoes birthday bash
+# Shaun’s Blog
 
-Enjoy your Sunday lunch Chris!
+Coming soon
